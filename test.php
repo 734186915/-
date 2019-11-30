@@ -1,1 +1,1 @@
-test@12306.cn
+test@qianxin.com
